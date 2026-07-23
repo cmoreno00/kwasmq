@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>锂电设备海外订单爆发：产业链业绩弹性排序。<br><br> | 来源：<code>https;//2026wttjrppzb.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>外资持续流入中际旭创，光模块龙头外资持仓占比突破6%。<br><br> | 来源：<code>https;//2026wttjrppzb.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>https;//2026wttjrppzb.org.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>新疆暑期游订单破5000万，独库公路日均通车量超2万辆。<br><br> | 来源：<code>https;//24zbwtyzxzb.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>机构席位联手买入三一重工3亿，工程机械龙头获资金布局。<br><br> | 来源：<code>https;//24zbwtyzxzb.com.cn
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https;//24zbwtyzxzb.org.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https;//24zqzbspzxgk.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https;//24zqzbspzxgk.com.cn
+</code></p><br><br><h3>广汽集团涨超4.8%，埃安品牌月销破5万</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>https;//24zqzbspzxgk.org.cn
+</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https;//3377tyapp.cn
+</code></p><br><br><h3>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https;//3377tyapp.com.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https;//3377tyapp.org.cn
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>全球粮食价格指数连续6个月回落，粮食危机压力缓解。<br><br> | 来源：<code>https;//3377tyzb.cn
+</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https;//3377tyzb.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>大模型在教育测评领域应用，自动批改作文准确率超教师。<br><br> | 来源：<code>https;//3377tyzb.org.cn
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https;//3377zbbs.cn
+</code></p><br><br><h3>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>https;//3377zbbs.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>https;//3377zbbs.org.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>合肥推出“科里科气”文旅线路，科技研学游订单暴涨。<br><br> | 来源：<code>https;//360zbty.cn
+</code></p><br><br><h3>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https;//360zbty.com.cn
