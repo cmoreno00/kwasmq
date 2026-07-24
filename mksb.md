@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分07秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>服务机器人试点政策落地，家用机器人标的异动</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>全国马拉松赛事上半年举办超500场，参赛人次突破600万</h3><br><p>思源电气电网设备出口高增，前三季度业绩预增超30%。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>教育大模型落地全国万所学校，个性化辅导覆盖千万学生</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>大模型在铁路领域应用，调度系统安全性和效率双提升</h3><br><p>千兆城市建设全覆盖，光通信板块走强。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>伊朗与沙特深化合作，双边贸易额同比暴涨80%</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>晶澳科技涨超4.8%，光伏组件出口数据亮眼</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>餐饮消费促进政策，餐饮连锁标的全线异动</h3><br><p>AI生成广告内容占比超70%，营销行业效率大幅提升。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>天顺风能风电塔架布局：风电零部件龙头的全球份额</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>宁德时代客户结构优势：全球主流车企的深度绑定逻辑。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>趋势行情里最忌频繁操作：顺势而为远比猜顶猜底重要。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>集成电路税收减免政策延长，芯片全板块集体上涨。<br><br> | 来源：<code>www.shutaotc.cn
