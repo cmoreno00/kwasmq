@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>https://haomen-intl-pro.com.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>全国重点流域水生态环境保护规划落地，治理投入超万亿元。<br><br> | 来源：<code>https://haosejinglingtanfangji.com.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>AI绘画工具用户破亿，国潮风格生成模型成爆款。<br><br> | 来源：<code>https://haosetv.com.cn
+</code></p><br><br><h3>大模型在城市治理领域应用，事件处理响应速度提升3倍</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://hei-liao-chi-gua-wang.com.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>https://hei-liao-chi-gua.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>中国交建涨超3.2%，港口航道业务优势凸显。<br><br> | 来源：<code>https://hei-liao-shequ.com.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>全国足球场数量超20万个，人均足球场地面积达1.8平方米。<br><br> | 来源：<code>https://hei-liao-wang.com.cn
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>https://hei-liaobudayang.com.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>紫金矿业沿5日均线上行，趋势行情下的持仓策略。<br><br> | 来源：<code>https://hei-liaochigua.com.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>https://hei-liaochiguawang.com.cn
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://hei-liaoshe.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://hei-liaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>全国石漠化土地面积持续缩减，治理率超60%</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://hei-si.com.cn
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可。<br><br> | 来源：<code>https://heidayang.com.cn
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>https://heiliao-budayang.com.cn
+</code></p><br><br><h3>全国运动康复中心超万家，运动损伤诊疗体系逐步完善</h3><br><p>北方稀土稀土量价齐升，前三季度业绩预增超50%。<br><br> | 来源：<code>https://heiliaobuda.org.cn
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://heiliaoliudianban.com.cn
+</code></p><br><br><h3>工业互联网平台落地，工业数字化标的全线拉升</h3><br><p>北京马拉松参赛人数突破3万，全球顶级赛事影响力持续扩大。<br><br> | 来源：<code>https://heiliaoshequ.com.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://heiliaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>首套房贷款利率动态调整，核心城市刚需购房成本创新低。<br><br> | 来源：<code>https://heishequliao.com.cn
