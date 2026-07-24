@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://91wangzhi.com.cn
+</code></p><br><br><h3>储能大项目集中并网，大储板块迎来行情催化</h3><br><p>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>全国运动康复中心超万家，运动损伤诊疗体系逐步完善</h3><br><p>国内短视频带火小众景点，超300个县域景点成网红打卡地。<br><br> | 来源：<code>https://91zaixian-guankan.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景。<br><br> | 来源：<code>https://91zaixianguankan.cn
+</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>长江流域水质优良断面比例达99%，生态环境持续改善。<br><br> | 来源：<code>https://91zh.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://9570-jinguan-zhijia.com
+</code></p><br><br><h3>特变电工新能源盈利高增，单季业绩预告超预期</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://9570-login-home.com
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>雄安新区建设新进展，雄安基建标的集体异动。<br><br> | 来源：<code>https://aaawang.com.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>沪股通席位单日买入中国中冶5300万，冶金工程标的增持。<br><br> | 来源：<code>https://ai-ai-shipin-wangzhan.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://ai-aishipin.com.cn
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖。<br><br> | 来源：<code>https://ai-fengyue.com.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://ai-weinai.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒。<br><br> | 来源：<code>https://ai-weinaizaixian.cn
+</code></p><br><br><h3>2026年美丽中国建设成效显著，绿色发展底色更加鲜明</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://aiaiwang.net.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>https://aigei.net.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>https://aiqingdao-web.com.cn
+</code></p><br><br><h3>葛洲坝水电工程技术：全球水电建设龙头的技术积累</h3><br><p>平遥古城暑期推出实景演出，夜间场次上座率超100%。<br><br> | 来源：<code>https://aiqingdaodujia.org.cn
+</code></p><br><br><h3>北京建工放量上涨3.0%，京津冀基建项目落地加速</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://aiqingdaodujialuntan.org.cn
+</code></p><br><br><h3>宁德时代Q3净利润同比增长70%，大超市场预期</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>https://aiqingdaoguanfangluntan.org.cn
+</code></p><br><br><h3>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>https://aiqingdaoluntan.org.cn
