@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中远海控异动拉升3.3%，集运运价阶段性反弹</h3><br><p>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局。<br><br> | 来源：<code>https://mianfei-yiji-wangzhan-mianfei.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>国产光刻机交付突破，半导体设备板块全线大涨。<br><br> | 来源：<code>https://mianfei-yijiwangzhan.com.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>https://mianfei-yijiwangzhanmianfei.com.cn
+</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>四川路桥一带一路订单落地，前三季度业绩预增超40%。<br><br> | 来源：<code>https://mianfei91wangye.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>上半年出境游人次突破8000万，跨境旅游全面复苏。<br><br> | 来源：<code>https://mianfeidianying-zaixian-guankan.com.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>https://mianfeihuangyou.com.cn
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://mianfeikan-pian.com.cn
+</code></p><br><br><h3>机构资金集中买入特变电工4900万，新能源龙头获抱团</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>https://mianfeishipin91.cn
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>https://mianfeiyiji-wangzhanmianfei.com.cn
+</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>中国男足世预赛1-0击败韩国，提前锁定2026世界杯出线名额。<br><br> | 来源：<code>https://mianfeiyijiwangzhan-mianfei.com.cn
+</code></p><br><br><h3>贵州茅台站稳年线，趋势反转信号逐步确认</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://mianfeiyijiwangzhanmianfei.com.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>https://mianfeizaixianchengwangzhan.com.cn
+</code></p><br><br><h3>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>https://mianfeizaixianshipinwangzhan.com.cn
+</code></p><br><br><h3>上半年全国显示面板出口同比增长21%，电子产业优势巩固</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>https://miaoshenshi.com.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>https://milan-sports-pro.com.cn
+</code></p><br><br><h3>全球卫星互联网用户突破1亿，太空经济进入爆发期</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://mile-sports-pro.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://mimeiwang.com.cn
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>https://mimi-chutian.com.cn
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://mimi-jiaoxue.com.cn
+</code></p><br><br><h3>私募基金仓位创年内新高，私募重仓标的上涨</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https://mingmingbuxihuan.com.cn
