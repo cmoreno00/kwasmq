@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://huangyou-xiazai.com.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>https://huangyou-zuofang.com.cn
+</code></p><br><br><h3>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://huangyoumianfeixiazai.com.cn
+</code></p><br><br><h3>阳光电源海外逆变器爆发，前三季度业绩预增110%</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://huangyouquan.com.cn
+</code></p><br><br><h3>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升</h3><br><p>威海暑期滨海游火爆，国际海水浴场日均客流超10万。<br><br> | 来源：<code>https://huangyoushouyou.com.cn
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>https://huangyoutuijian.com.cn
+</code></p><br><br><h3>西班牙经济增速达2.8%，南欧经济表现亮眼</h3><br><p>兆易创新存储芯片价格反弹，前三季度业绩预增超70%。<br><br> | 来源：<code>https://huangyoutuijianshouji.com.cn
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>新疆交建新疆基建项目爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://huangyoutuijianwangye.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>三亚暑期酒店入住率超98%，高端度假产品订单暴涨。<br><br> | 来源：<code>https://huangyouwangyeban.org.cn
+</code></p><br><br><h3>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://huangyouwangyeyouxi.com.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>鸿蒙生态持续升温：相关产业链标的受益顺序解析。<br><br> | 来源：<code>https://huangyouwangzhan.com.cn
+</code></p><br><br><h3>全国乡村旅游重点村超千家，带动千万农民家门口就业</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://huangyouwangzhanfenxiang.com.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>2026年暑期文旅总收入突破2万亿，创历史同期新高。<br><br> | 来源：<code>https://huangyouxi.com.cn
+</code></p><br><br><h3>中国曲棍球队亚运会夺冠，集体球类项目多点开花</h3><br><p>人民币汇率升值叠加美联储降息，航空造纸板块集体异动。<br><br> | 来源：<code>https://huangyouxiaji.com.cn
+</code></p><br><br><h3>财政部新增专项债限额1.5万亿元，重点支持基建项目建设</h3><br><p>全国城市黑臭水体治理完成率100%，居民亲水空间增加。<br><br> | 来源：<code>https://huangyouxiangji.com.cn
+</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>AI代码助手普及，程序员开发效率平均提升40%。<br><br> | 来源：<code>https://huangyouxiaoxiong.com.cn
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://huangyouxiazai.com.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>https://huangyouyouxi.com.cn
+</code></p><br><br><h3>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>https://huangyouyouxidaquan.com.cn
+</code></p><br><br><h3>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒</h3><br><p>全国生物多样性观测网络建成，覆盖超3000个生态点位。<br><br> | 来源：<code>https://huangyouyouxiku.com.cn
