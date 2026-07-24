@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://luolishipin.net.cn
+</code></p><br><br><h3>北向资金大额扫货紫金矿业3.5亿，黄金龙头获外资持续流入</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://luoliwang.com.cn
+</code></p><br><br><h3>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>https://luonu-wangzhan.com
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>三一重工涨超4.1%，海外工程机械订单高增。<br><br> | 来源：<code>https://luotimeinu.com.cn
+</code></p><br><br><h3>自动驾驶大模型迭代，端到端算法落地量产车型</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://luotiyishu.com.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩。<br><br> | 来源：<code>https://luoyoushe.com.cn
+</code></p><br><br><h3>趋势行情里最忌频繁操作：顺势而为远比猜顶猜底重要</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>https://m-jinmantiantang.com.cn
+</code></p><br><br><h3>高管团队集体增持工业AI龙头，合计增持金额超2.3亿</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>https://m-mitaoshipin.com.cn
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>快递行业监管优化，快递龙头标的全线拉升。<br><br> | 来源：<code>https://m-mogushipin.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>https://madou-chuanmei.com.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://madou-cm-chuanmei-zaixian-gaoqing.com.cn
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://madou-shipin.com.cn
+</code></p><br><br><h3>贵州茅台前三季度营收破千亿，业绩预告超预期</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>https://madouchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https://madouseman.com.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https://madoushipin.cn
+</code></p><br><br><h3>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%</h3><br><p>特变电工涨超3.3%，新能源业务盈利持续释放。<br><br> | 来源：<code>https://majiang-diannao-ban-zaixian-wan.com.cn
+</code></p><br><br><h3>中德经贸论坛举办，双方达成百项合作协议</h3><br><p>国内演出市场票房上半年突破200亿，演唱会经济爆发。<br><br> | 来源：<code>https://majiang-hu-le-moniqi.com.cn
+</code></p><br><br><h3>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿</h3><br><p>多地景区推出“一票通”联票，覆盖周边十余景点让利游客。<br><br> | 来源：<code>https://majiang-hu-le.com.cn
+</code></p><br><br><h3>全国职业病防治体系完善，劳动者健康权益得到全面保障</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>https://majiang-hule-17w.com
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>循环经济发展规划，资源回收标的全线拉升。<br><br> | 来源：<code>https://majiang-youxi-zaixian-wan.com.cn
