@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>跨境电商出口高增，跨境电商板块全线爆发</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://008-pg-official-login.com
+</code></p><br><br><h3>北京冬奥场馆全年接待人次破2000万，冰雪运动持续普及</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://008pg-guoji-app.com
+</code></p><br><br><h3>中国船舶涨超4.5%，造船行业订单持续饱满</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://1024hegongchang.com.cn
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>https://1024xp.com.cn
+</code></p><br><br><h3>国内大模型专利申请量全球第一，占比超60%</h3><br><p>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升。<br><br> | 来源：<code>https://17-3-guanyu-xing-jiaoyu-xuanchuanpian.com.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://17c18qicao.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%。<br><br> | 来源：<code>https://17caowang.com.cn
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>https://17capcc.com.cn
+</code></p><br><br><h3>土耳其经济通胀回落至30%，金融市场逐步稳定</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>运达股份放量上涨5.3%，风电整机盈利修复</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>氢能产业中长期规划，氢能源全板块集体上涨。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>全球智能手机市场回暖，二季度出货量同比增长7%</h3><br><p>多氟多涨超5.2%，六氟磷酸锂价格触底反弹。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>机器人减速器标的启动申购，谐波减速器国产替代率突破50%</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>贵州建工异动拉升3.1%，区域基建业务高增。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>全球教育科技市场规模突破4000亿美元，线上教育持续普及</h3><br><p>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧。<br><br> | 来源：<code>https://17ccomrukou.com.cn
