@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>良渚古城遗址新发现大型水利工程，实证5000年文明史</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://dizhifabuye.com.cn
+</code></p><br><br><h3>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>https://dl-kaiyun-app.com.cn
+</code></p><br><br><h3>天津推出“夜津城”活动，相声演出夜间场次一票难求</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>https://dl-kaiyun-pro.com.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>中国田径世锦赛斩获5金，男子百米接力打破亚洲纪录。<br><br> | 来源：<code>https://dl-kaiyun-sports.com.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>中欧班列开行量创新高，铁路物流板块集体上涨。<br><br> | 来源：<code>https://donghuatongren.com.cn
+</code></p><br><br><h3>汉缆股份涨超3.9%，电网投资带动订单增长</h3><br><p>职业教育法实施一周年，新增100所应用型技术大学。<br><br> | 来源：<code>https://dongjingre.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>中国举重队世锦赛打破12项世界纪录，优势项目持续领先。<br><br> | 来源：<code>https://dongman-meinu-bei-cao.com.cn
+</code></p><br><br><h3>种业振兴行动方案落地，种业标的全线异动</h3><br><p>北方华创半导体设备订单爆发，单季业绩预增超80%。<br><br> | 来源：<code>https://dongman-zaixianguankan.com.cn
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>https://dongmantong.com.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://dongmanxiao.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>https://dongsheng-dawutai-app.com
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>https://dongsheng-guoji-link.com
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://dou-luodalumanhua.com.cn
+</code></p><br><br><h3>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级</h3><br><p>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可。<br><br> | 来源：<code>https://dou-yin.com.cn
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>https://doubaochengrenban.org.cn
+</code></p><br><br><h3>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://douhuashipin.org.cn
+</code></p><br><br><h3>海尔智家高端化布局：卡萨帝品牌的溢价能力解析</h3><br><p>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格。<br><br> | 来源：<code>https://douhuashipinguanwang.org.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>https://douhuashipinrukouguanwang.org.cn
+</code></p><br><br><h3>呼吸道疾病高发，儿科医药板块集体上涨</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://douhuashipinwangyeban.org.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://douhuashipinzaixianbofang.org.cn
