@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>全国文旅消费投诉量同比下降30%，市场秩序持续优化。<br><br> | 来源：<code>https://rutoujiaojiazuzaixianguankan.com.cn
+</code></p><br><br><h3>东部地区率先实现高质量发展，人均GDP突破12万元</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>https://rutoujiazu.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://san-shangyouya.com.cn
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>https://sands9570.com
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑。<br><br> | 来源：<code>https://sanjipian-zh.com.cn
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>https://se-daohang.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>https://se-hu.com.cn
+</code></p><br><br><h3>全国京津冀生态环境联建联防联治，空气质量同比改善10%</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://se-huatang.cn
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://se-se-manhua.com.cn
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://se-seshipin.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>葛洲坝水电工程技术：全球水电建设龙头的技术积累。<br><br> | 来源：<code>https://secure-kaiyun-web.com.cn
+</code></p><br><br><h3>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>https://sedog.com.cn
+</code></p><br><br><h3>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>https://sehuatang.com.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://selifan.com.cn
+</code></p><br><br><h3>亨通光电涨超4.4%，海洋能源业务贡献增量</h3><br><p>全国房地产开发投资降幅收窄，市场预期逐步企稳。<br><br> | 来源：<code>https://semantiantang.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>全国登山健身大会覆盖百座名山，参与人次破500万。<br><br> | 来源：<code>https://semeimei.com.cn
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>https://sesedongmanwang.com.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持。<br><br> | 来源：<code>https://sesesexsehuwangzhan.cn
+</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://sesewangzhan.com.cn
+</code></p><br><br><h3>广汽集团埃安盈利转正，前三季度业绩预增超45%</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>https://sezaixian.cn
