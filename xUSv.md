@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>cqxsx.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>gmsz.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>三一重工涨超4.1%，海外工程机械订单高增。<br><br> | 来源：<code>www.mgyou.com
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>www.zdxtz.com
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>产业链产品涨价类（100个）</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>先导智能跳空高开6.1%，锂电设备海外订单爆发</h3><br><p>运达股份风电整机盈利修复：行业底部的经营优化逻辑。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>虚拟电厂建设导则出台，虚拟电厂标的全线拉升</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>乡村振兴政策加码，农业农村板块集体上涨</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝</h3><br><p>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>安琪酵母放量上涨3.6%，海外市场拓展超预期</h3><br><p>露营经济持续升温，全国露营地数量突破4万个。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>软件企业所得税优惠延续，国产软件板块异动</h3><br><p>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增。<br><br> | 来源：<code>www.hrnhug.cn
