@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>旅游年卡覆盖超200城，一票通玩激活本地休闲消费</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>全球气候变化大会预备会召开，各国提交新减排承诺</h3><br><p>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流</h3><br><p>中原高速异动拉升2.2%，河南路网业务边际改善。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>全球机器人装机量突破500万台，工业自动化加速普及</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>河南卫视中国节日系列节目全网播放量突破200亿次</h3><br><p>大模型轻量化技术突破，1B参数模型效果追平百亿级模型。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn
+</code></p><br><br><h3>航发动力技术壁垒：航空发动机国产替代的核心路径</h3><br><p>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局。<br><br> | 来源：<code>https://xingkongying-shi.com.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://xingkongyingyuanzaixianguankanmianfei.com.cn
+</code></p><br><br><h3>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红</h3><br><p>通威股份低位反弹，光伏产业链盈利预期改善。<br><br> | 来源：<code>https://xingshi-zixunyuan.com.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://xiuxiu-dongman.com.cn
+</code></p><br><br><h3>浙江建投异动拉升4.7%，浙江共同富裕区基建加码</h3><br><p>国家发改委出台促消费20条新政，重点支持汽车家电消费。<br><br> | 来源：<code>https://xiuxiu-shipin-zh.com.cn
+</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>广西交投旗下标的异动，东盟基建合作持续深化。<br><br> | 来源：<code>https://xiuxiu-shipin.com.cn
+</code></p><br><br><h3>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑</h3><br><p>中国与海湾国家合作深化，能源、金融多领域协同发展。<br><br> | 来源：<code>https://xiuxiushipin.org.cn
+</code></p><br><br><h3>拉美多国签署货币互换协议，减少对美元依赖</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https://xiuxiushipinwang.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>https://xiuxiuwuyefulimianfeishipin.cn
+</code></p><br><br><h3>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>https://xrbylf.cn
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>https://ya-se-tu.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>https://ya-xing-guan-wang.com.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>卓胜微射频芯片积累：消费电子赛道的国产替代机会。<br><br> | 来源：<code>https://yanggongfeinawolaicaonile.org.cn
