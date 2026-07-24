@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>人民币汇率阶段性贬值，出口导向型标的异动。<br><br> | 来源：<code>https://caoliushe-qu.cn
+</code></p><br><br><h3>万科A异动拉升3.6%，核心城市楼盘去化率改善</h3><br><p>国内大模型人才缺口破百万，AI相关专业毕业生供不应求。<br><br> | 来源：<code>https://caoliushe.cn
+</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>车联网安全标准出台，车联网板块集体上涨。<br><br> | 来源：<code>https://caoliushequdizhi.cn
+</code></p><br><br><h3>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布</h3><br><p>中国男篮重返奥运会八强，世界排名提升至第12位。<br><br> | 来源：<code>https://caoliushequguanwang.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://caoliushequjishutaolunqu.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>三亚暑期酒店入住率超98%，高端度假产品订单暴涨。<br><br> | 来源：<code>https://caoliushequrukou.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://caoliushequwangzhi.cn
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴。<br><br> | 来源：<code>https://caoliushequxinzhizuixinxiaoxi.cn
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://caoliushequyaoqingma.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>https://caoliushequzaixianguankan.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://caoliushequzuixin.cn
+</code></p><br><br><h3>旅游服务质量提升政策，景区旅游板块走强</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>https://caoliushequzuixindizhi.cn
+</code></p><br><br><h3>上半年全国航空航天制造业营收同比增长22%</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://caoliushequzuixinwangzhi.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>多地文旅部门推出“先游后付”服务，提升游客消费体验。<br><br> | 来源：<code>https://caoliushipin.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>https://caoliuxinshidai.cn
+</code></p><br><br><h3>商汤日日新大模型4.0上线，智慧城市场景落地超百城</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>https://caoliuyaoqingma.cn
+</code></p><br><br><h3>全国江豚种群数量突破2000头，长江微笑天使重现</h3><br><p>智能网联汽车准入试点落地，车路协同标的拉升。<br><br> | 来源：<code>https://caoliuzuixin.cn
+</code></p><br><br><h3>中国中车异动拉升，低位补涨行情的参与思路</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://caoliuzuixindizhi.cn
+</code></p><br><br><h3>亿纬锂能换手率超3%，量能放大下的资金动向解析</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://caomei-shipin-se.com.cn
+</code></p><br><br><h3>隆基绿能单季盈利超百亿，光伏龙头业绩超预期</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>https://caomei-shipin.cn
