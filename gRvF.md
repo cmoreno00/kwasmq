@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>比亚迪AH股同步走强，量价配合下的交易机会分析</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>https://hongtao-shipinwangyeban.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https://hongtao-shipinzaixian.com.cn
+</code></p><br><br><h3>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格</h3><br><p>东北振兴政策升级，东北本地股板块走强。<br><br> | 来源：<code>https://hongtao-tv.com.cn
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>https://hongtao-yingyuan.com.cn
+</code></p><br><br><h3>全国电解铝行业全部实现超低排放，能耗水平全球领先</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://hongtaoshipinguanwang.com.cn
+</code></p><br><br><h3>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>https://hongtaoshipinmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>国内大模型专利申请量全球第一，占比超60%</h3><br><p>卫星互联网星座加速组网，低轨卫星板块全线走强。<br><br> | 来源：<code>https://hongtaoshipinvip.com.cn
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>https://hongtaoshipinyandex.com.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>https://hongtaoshipinzaixianguankan.com.cn
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://hongtaowang.com.cn
+</code></p><br><br><h3>璞泰来负极材料布局：锂电材料龙头的全产业链协同</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://hongtaoyingshidaquangaoqingoumeiju.com.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>端侧AI应用爆发，手机AI功能月活用户破10亿。<br><br> | 来源：<code>https://hongtaoyingshizaixianguankan.com.cn
+</code></p><br><br><h3>北向资金单日净流入120亿，核心资产获外资集中扫货</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>https://hongyun-wangzhi-vip.com
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>国产科幻小说海外获奖，中国想象力走向全球读者。<br><br> | 来源：<code>https://hq-bd-tiyu.com.cn
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://hq-biyi-tiyu.com.cn
+</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://hq-bw-tiyu.com.cn
+</code></p><br><br><h3>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://hq-fbsports.com.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://hq-ff-tiyu.com.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>城中村改造专项政策，城中村改造标的全线异动。<br><br> | 来源：<code>https://hq-jb-tiyu.com.cn
+</code></p><br><br><h3>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露</h3><br><p>国内AI产业规模破2万亿，年增速超35%成经济新引擎。<br><br> | 来源：<code>https://hq-lebeijing-sports.com.cn
