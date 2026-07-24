@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>化肥价格集体上涨，农资板块迎来产品涨价催化</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https://91-baihu.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://91-cc.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://91-chengren-zaixian.com.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>新希望全产业链布局：从饲料到养殖的协同优势解析。<br><br> | 来源：<code>https://91-chigua.com.cn
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>中兴通讯涨超4%，6G技术研发进度超市场预期。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>中国攀岩队世锦赛夺得2金，速度攀岩世界纪录多次被打破</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>私募基金仓位创年内新高，私募重仓标的上涨</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>中国平安权重护盘，指数关键点位的支撑作用凸显</h3><br><p>中国台球选手世锦赛夺冠，斯诺克运动中国力量持续崛起。<br><br> | 来源：<code>https://91-com.com.cn
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>圣邦股份放量上涨4.6%，模拟芯片国产替代加速。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展路径</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>深股通席位单日买入金龙汽车4300万，客车标的获增持</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>https://91-mitao.com.cn
+</code></p><br><br><h3>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>全国东北虎种群数量突破70只，野生虎栖息地持续扩大。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
