@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>qiujob.com
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>全国绿色建筑占新建建筑比例达90%，建筑节能标准提升。<br><br> | 来源：<code>soteam.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>shadowrobot.cn
+</code></p><br><br><h3>职业教育法实施一周年，新增100所应用型技术大学</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>shzhonglv.cn
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>存款利率连续下调，居民配置权益资产意愿持续增强。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>福建高速异动拉升2.2%，海西地区车流量回暖</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰</h3><br><p>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>浪潮信息放量上涨7.4%，AI服务器出货量超预期</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>国内AI算力规模突破50EFLOPS，稳居全球第二</h3><br><p>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>五粮液重回160元，关键点位的多空博弈分析。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>复合肥价格上调7%，化肥全产业链盈利优化。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>数字中国建设新规划，数字经济标的集体异动</h3><br><p>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>露营经济上半年市场规模突破300亿元，精致露营成为新趋势</h3><br><p>北向资金连续增持工业母机龙头，高端制造获外资持续流入。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>全国智慧健身器材普及至社区，运动数据实时上传健康平台</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>社保基金新进重仓股，社保持仓标的集体异动。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>www.siqixue.cn
