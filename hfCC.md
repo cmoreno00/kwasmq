@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>https://ri-hanzaixian.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>https://ri-hanzaixianguankan.com.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https://ri-hanzhongwenzimu.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>https://riben-chengren-shipin.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团。<br><br> | 来源：<code>https://riben-yiji-bu-ka-yier-qu.com.cn
+</code></p><br><br><h3>游资顶级席位打板璞泰来1.7亿，锂电材料标的获热炒</h3><br><p>浪潮信息冲高，AI服务器需求维持高增长态势。<br><br> | 来源：<code>https://riben-yiquerqu.com.cn
+</code></p><br><br><h3>全国野生东北豹种群数量突破100只，生物链完整性恢复</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://ribenjiujiujiu.com.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://ribenlifan.com.cn
+</code></p><br><br><h3>登海种业玉米种子需求超预期，单季业绩预告超预期</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>https://ribennuyou.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>全国商品房销售面积同比由负转正，市场信心逐步恢复。<br><br> | 来源：<code>https://ribenwuma.org.cn
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://ribenyiji.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://ribenyiji.com.cn
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密。<br><br> | 来源：<code>https://ribenyijibukayierqu.com.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>https://rihan-wuma.com.cn
+</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://rihan-zaixian.com.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>地震应急响应升级，灾后重建板块异动。<br><br> | 来源：<code>https://rihanjingpin.com.cn
+</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://rihanjiujiu.com.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>全国滑板锦标赛举办，年轻选手展现街头运动活力。<br><br> | 来源：<code>https://rihansanji.com.cn
+</code></p><br><br><h3>运达股份风电整机盈利修复：行业底部的经营优化逻辑</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>https://rihanwuma.com.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>https://rihanyiqu.com.cn
