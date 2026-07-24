@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>https://tianmeichuanmei.com.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://tiantang-manhua.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://tiantang91wang.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://tiantangjinman-zh.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>https://tiantangjinman.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://tiantangmanhuawang.com.cn
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>洋河股份异动拉升4.0%，梦之蓝系列动销超预期。<br><br> | 来源：<code>https://tiantian-dongman.com.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>https://tiantian-shuang-yeye-shuang.com.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>https://tiantiandongmanwang.com.cn
+</code></p><br><br><h3>挪威经济稳步增长，油气和新能源产业协同发展</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>https://tiantianwang.com.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度。<br><br> | 来源：<code>https://tiantianzonghewang.com.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩。<br><br> | 来源：<code>https://tingting-se-tu.com.cn
+</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://tingting-zonghe.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>https://tingtingwuyuetian.com.cn
+</code></p><br><br><h3>以色列经济逐步复苏，高科技产业重回增长轨道</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://tongrenbaodi.com.cn
+</code></p><br><br><h3>交控科技城轨信号优势：国内城轨信号系统的国产替代</h3><br><p>新疆暑期游订单破5000万，独库公路日均通车量超2万辆。<br><br> | 来源：<code>https://tongrenbenzi.com.cn
+</code></p><br><br><h3>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://tongrendongmanwangzhan.org.cn
+</code></p><br><br><h3>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>https://tongrenxiaoshuo.com.cn
+</code></p><br><br><h3>沪深交易所降费，券商经纪业务标的集体上涨</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://tongxue-mama-huaiyun-ting-daduzi.com.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://tongyanjuru.com.cn
