@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>楚天高速放量上涨2.0%，湖北区域车流量持续增长</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>网络安全政策升级，网安板块集体上涨</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国绿色物流示范城市创建，快递电动化率达95%</h3><br><p>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>奥地利经济复苏，旅游业和制造业双回暖</h3><br><p>全国工业用水重复利用率达92%，节水型工业体系建成。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>宝钢股份企稳回升，低位标的的补涨机会分析</h3><br><p>全国土壤污染状况详查完成，受污染耕地安全利用率达95%。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>北京冬奥场馆全年接待人次破2000万，冰雪运动持续普及</h3><br><p>海康威视AI业务高增，单季净利润同比增45%。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>全球电动汽车销量突破2500万辆，市场份额持续提升。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>海南自贸港封关运作准备全面就绪，政策红利加速释放</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>全球债务规模突破320万亿美元，新兴市场债务风险可控</h3><br><p>中国水球队世锦赛闯入八强，水上集体项目进步显著。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>白酒行业产业政策引导，高端白酒板块集体上涨</h3><br><p>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>小米小爱大模型升级，全场景智能互联覆盖亿级设备</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>城中村改造专项政策，城中村改造标的全线异动。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>全国文旅消费投诉量同比下降30%，市场秩序持续优化。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>大模型在气象灾害预警领域应用，预警覆盖率提升至98%。<br><br> | 来源：<code>www.ahhaiquan.cn
