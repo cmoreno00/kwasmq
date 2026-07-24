@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>药明康德异动拉升5.2%，海外新药订单持续落地</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>风控永远放在第一位：先保住本金，再谈盈利空间</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
+</code></p><br><br><h3>天际股份锂电材料业务：传统化工企业的转型成长逻辑</h3><br><p>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>广汽集团埃安盈利转正，前三季度业绩预增超45%。<br><br> | 来源：<code>https://aiyeapp.net.cn
+</code></p><br><br><h3>国内首款7nm芯片量产，先进制程产业链异动</h3><br><p>沪股通席位单日买入金风科技1亿，风电龙头获外资增持。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>房地产市场新政落地，多地首套房贷款利率降至3.2%以下</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
+</code></p><br><br><h3>洽洽食品坚果业务高增，前三季度业绩预增超30%</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://aiyeshipin.com.cn
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>锂矿板块触底反弹：行业拐点是否已经正式确立。<br><br> | 来源：<code>https://aiyeshipinapp.net.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>固态电池试点线投产，固态电池产业链集体异动。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>https://aiyeshipinwangzhan.net.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
+</code></p><br><br><h3>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://aiyewangyeban.net.cn
+</code></p><br><br><h3>比亚迪全产业链布局分析：从电池到整车的协同优势</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>长城国家文化公园建设完工，沿线游览步道贯通超万公里</h3><br><p>三一重工全球化布局：工程机械龙头的第二增长曲线。<br><br> | 来源：<code>https://aiyexiazai.net.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场。<br><br> | 来源：<code>https://anquye.com.cn
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://anzhailala.com.cn
