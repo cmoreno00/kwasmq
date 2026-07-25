@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分39秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>海康威视涨超4.7%，AI安防业务收入增速回升。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>保障性住房建设规划，保障房产业链集体上涨</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>小康股份涨超7.7%，新能源汽车业务盈利修复</h3><br><p>露营经济上半年市场规模突破300亿元，精致露营成为新趋势。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>锂电设备海外订单爆发：产业链业绩弹性排序</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>璞泰来负极材料布局：锂电材料龙头的全产业链协同。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>中德经贸论坛举办，双方达成百项合作协议</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>房地产预售资金监管优化，地产链标的全线拉升。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>酱油价格单月上涨5%，调味品龙头盈利弹性释放</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>全国食品安全抽检合格率达99.8%，从源头保障国民健康。<br><br> | 来源：<code>www.geeksuper.cn
