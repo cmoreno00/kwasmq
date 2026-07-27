@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>北方稀土稀土全产业链布局：国内稀土龙头的政策红利</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>能耗双控政策优化，高耗能行业龙头标的走强</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>公募基金发行回暖，基金重仓标的集体拉升</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>登海种业放量上涨4.0%，玉米种子需求持续向好</h3><br><p>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>外资持续流入中际旭创，光模块龙头外资持仓占比突破6%</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>全国长江十年禁渔成效显著，水生生物资源逐步恢复。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>双汇发展异动拉升2.9%，肉制品盈利边际改善</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>长电科技先进封装技术：全球封测龙头的份额提升逻辑</h3><br><p>容百科技放量拉升5.5%，高镍正极渗透率持续提升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>数字中国建设新规划，数字经济标的集体异动</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>香港高校内地招生扩容500名额，新增大湾区相关特色专业</h3><br><p>端侧AI应用爆发，手机AI功能月活用户破10亿。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>www.zxyy999.com
