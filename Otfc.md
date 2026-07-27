@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>全国二手房市场活跃度回升，成交量连续3个月环比上涨</h3><br><p>良渚古城遗址新发现大型水利工程，实证5000年文明史。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>汽车出口数据亮眼：自主车企、零部件的业绩增量分析。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>全球粮食价格指数连续6个月回落，粮食危机压力缓解</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长</h3><br><p>中国围棋队包揽亚运会全部金牌，延续项目统治力。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>通威股份异动拉升5.2%，渔光互补项目持续落地</h3><br><p>2026年全国高考报名人数1391万，多地新增AI相关专业招生。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>全国京津冀生态环境联建联防联治，空气质量同比改善10%</h3><br><p>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>大模型在农业领域应用，病虫害识别准确率超97%</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国-东盟自贸区3.0版谈判完成，贸易便利化升级</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>汉缆股份涨超3.9%，电网投资带动订单增长</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>上半年全国医药制造业利润同比增长13%，创新药贡献突出。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿</h3><br><p>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩</h3><br><p>国产纪录片全网播放量突破150亿次，自然人文题材广受好评。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>中澳关系持续回暖，双边贸易额同比增长12%</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>www.jogosdefutebol10.com
