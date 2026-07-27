@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宁沪高速优质路网资产：长三角公路龙头的长期配置价值</h3><br><p>AI翻译工具支持百种语言实时互译，准确率超专业译员。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>煤层气开发利用政策，煤层气标的全线拉升</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中国滑板队奥运会夺得银牌，新兴项目快速崛起</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>桂林山水暑期游热度回升，漓江游船日均发船超200艘</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国国家公园数量增至15个，保护面积超23万平方公里</h3><br><p>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>世界文化遗产新增2处，我国世遗总数增至60处</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>国产喜剧电影票房突破70亿元，本土化笑点引发全民狂欢。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>全国健身健美锦标赛举办，选手展现力量与健美风采</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>外资机构集中调研跨境支付标的，海外结算规模环比大增</h3><br><p>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>沪股通席位单日买入金风科技1亿，风电龙头获外资增持</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>风控永远放在第一位：先保住本金，再谈盈利空间</h3><br><p>小鹏汽车异动拉升9.2%，新车型交付量超预期。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>www.mc53.cn
