@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中超联赛场均上座人数突破2.5万，球市全面回暖</h3><br><p>世界大学排名发布，清华北大首次双双跻身全球前十。<br><br> | 来源：<code>https://hei-liaose.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://hei-liaoshe.cn
+</code></p><br><br><h3>沪硅产业涨超5.8%，12英寸硅片产能持续释放</h3><br><p>一带一路订单释放：中字头基建的估值重塑空间解析。<br><br> | 来源：<code>https://hei-liaoshe.com.cn
+</code></p><br><br><h3>炒股最难的不是买对，而是在波动里守住正确的持仓</h3><br><p>科大讯飞高位震荡，分歧阶段的关键位与风控思路。<br><br> | 来源：<code>https://hei-liaoshequ.cn
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>https://hei-liaowang.cn
+</code></p><br><br><h3>成都大运会遗产持续释放，大运场馆全年免费开放超300天</h3><br><p>福州三坊七巷暑期客流超1500万，闽派文旅产品热销。<br><br> | 来源：<code>https://hei-liaowangyongjiuyuming.com.cn
+</code></p><br><br><h3>华为智选新车型发布，相关合作车企单日大涨</h3><br><p>成渝双城经济圈政策加码，成渝板块标的全线上涨。<br><br> | 来源：<code>https://hei-si.com.cn
+</code></p><br><br><h3>央行下调再贷款再贴现利率，小微和三农融资成本下行</h3><br><p>机构资金联手买入北京君正9500万，车载存储龙头获抱团。<br><br> | 来源：<code>https://heidayang.com.cn
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>https://heiliao-budayang.com.cn
+</code></p><br><br><h3>赣锋锂业固态电池贡献增量，前三季度业绩预增70%</h3><br><p>全球供应链重构加速，东南亚制造业份额持续提升。<br><br> | 来源：<code>https://heiliao-she.cn
+</code></p><br><br><h3>紫光国微特种芯片高增，单季业绩预告超预期</h3><br><p>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期。<br><br> | 来源：<code>https://heiliaobaoguang.cn
+</code></p><br><br><h3>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://heiliaobu.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://heiliaobuda.cn
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑。<br><br> | 来源：<code>https://heiliaobuda.org.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>新疆交建新疆基建项目爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://heiliaobudaxiang.cn
+</code></p><br><br><h3>德业股份异动拉升6.8%，储能逆变器盈利超预期</h3><br><p>机构专用席位净买入许继电气5800万，特高压龙头获加仓。<br><br> | 来源：<code>https://heiliaobudayang.org.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>https://heiliaochiguabudayang.cn
+</code></p><br><br><h3>美的集团股价创年内新高，家电出口数据亮眼</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>https://heiliaochiguawang.cn
+</code></p><br><br><h3>金风科技异动拉升4.5%，海上风电装机量超预期</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>https://heiliaodaquan.cn
+</code></p><br><br><h3>北方稀土突破前期平台，短线弹性有望释放</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>https://heiliaoguanwang.cn
