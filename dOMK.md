@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国全民阅读指数达72分，人均年阅读纸质书超8本</h3><br><p>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集。<br><br> | 来源：<code>https://91cangku.cn
+</code></p><br><br><h3>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://91ci-yuan.com.cn
+</code></p><br><br><h3>全国骑行赛事超千场，骑行运动参与人数破5000万</h3><br><p>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路。<br><br> | 来源：<code>https://91ciyuan.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://91ciyuanguanwangrukou.com.cn
+</code></p><br><br><h3>中远海控异动拉升3.3%，集运运价阶段性反弹</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://91cncom.cn
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://91cncom.com.cn
+</code></p><br><br><h3>重庆建工涨超3.2%，西部基建投资持续加码</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://91com.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://91con.cn
+</code></p><br><br><h3>不要盲目跟风炒热点：大部分追高的资金，最后都会成为接盘侠</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://91con.com.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿。<br><br> | 来源：<code>https://91cwang.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>全国新能源汽车保有量突破3000万辆，减排效果显著。<br><br> | 来源：<code>https://91dashijian.cn
+</code></p><br><br><h3>长城国家文化公园建设完工，沿线游览步道贯通超万公里</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://91dashijian.com.cn
+</code></p><br><br><h3>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生</h3><br><p>教育部发布新规，义务教育阶段课后服务实现全覆盖。<br><br> | 来源：<code>https://91dizhiyongjiurukou.com.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>https://91dongman.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降。<br><br> | 来源：<code>https://91guochan.com.cn
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://91heiliaochigua.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>国内演出市场票房上半年突破200亿，演唱会经济爆发。<br><br> | 来源：<code>https://91huangpian.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>https://91kanpianwangzhanzaixianguankan.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>https://91kanwangyeban.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>海南自贸港封关运作倒计时，海南本地股全线异动。<br><br> | 来源：<code>https://91kanwangyeban.com.cn
