@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美的集团To B业务拓展：工业自动化的第二成长曲线</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>https://aiqing-daodujialuntan.org.cn
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://aiqing-daowangzhan.org.cn
+</code></p><br><br><h3>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://aiqing-daoyazhou.org.cn
+</code></p><br><br><h3>中国台球选手世锦赛夺冠，斯诺克运动中国力量持续崛起</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://aiqing-daoyuming.org.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://aiqingdao-web.com.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>机构专用席位净买入容百科技8800万，高镍正极龙头加仓。<br><br> | 来源：<code>https://aiqingdao.org.cn
+</code></p><br><br><h3>全国酸雨区面积占比降至3.2%，降水质量持续改善</h3><br><p>北向资金单日买入陕西煤业6800万，煤炭龙头获外资流入。<br><br> | 来源：<code>https://aiqingdaodujia.org.cn
+</code></p><br><br><h3>美联储宣布降息25BP，全球权益资产迎来估值修复窗口</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://aiqingdaodujialuntan.org.cn
+</code></p><br><br><h3>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇</h3><br><p>理想汽车单季盈利超20亿，新势力车企业绩超预期。<br><br> | 来源：<code>https://aiqingdaoguanfangluntan.org.cn
+</code></p><br><br><h3>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://aiqingdaoguanwang.org.cn
+</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>城市防洪排涝政策，管网建设标的全线拉升。<br><br> | 来源：<code>https://aiqingdaoluntan.org.cn
+</code></p><br><br><h3>全国汽车拉力赛超20站，赛车运动爱好者规模破百万</h3><br><p>苏炳添复出百米跑出9秒98，重返世界顶尖选手行列。<br><br> | 来源：<code>https://aiqingdaoluntandaohang.org.cn
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>https://aiqingdaoluntandujia.org.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业。<br><br> | 来源：<code>https://aiqingdaoluntandujiatigong.org.cn
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷。<br><br> | 来源：<code>https://aiqingdaoluntanguanwang.org.cn
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>https://aiqingdaoluntanshouye.org.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhan.org.cn
+</code></p><br><br><h3>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhi.org.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>https://aiqingdaoluntanxianlu.org.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://aiqingdaoluntanyazhou.org.cn
